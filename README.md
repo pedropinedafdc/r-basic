@@ -27,4 +27,4 @@ Una vez termines el curso podrás seguir con los mejores cursos de análisis de 
 
 
 
-*Hola bola 123asda*
+*Hola bola Como que esto ya esta dado*
